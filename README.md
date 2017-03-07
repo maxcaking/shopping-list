@@ -1,3 +1,3 @@
-- butter milk
+- chocolate milk
 - free range eggs
 - butter
