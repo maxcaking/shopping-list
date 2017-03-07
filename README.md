@@ -1,3 +1,3 @@
 - milk
-- eggs
+- free range eggs
 - butter
